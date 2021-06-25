@@ -1,3 +1,3 @@
-# COVTEST
+# covtest
 
 Hi tow
