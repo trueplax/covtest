@@ -1,6 +1,6 @@
 # covtest
 
-[COVTESTFAKE :arrow_down:](https://anonfiles.com/z2f2b434u4/cov_test_fake_pdf)
+[COVTESTFAKE :arrow_down:](https://anonfiles.com/z2f2b434u/cov_test_fake_pdf)
 
 ### Procedure:
 1/ download the PDF to your Mac or PC. 
