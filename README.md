@@ -1,6 +1,6 @@
 # covtest
 
-[Download ⬇️](https://anonfiles.com/z2f2b434u4/cov_test_fake_pdf)
+[Download ⬇️](https://srv-store3.gofile.io/download/adbc63da-e308-4db4-b70c-4a5989805c60/cov_test_fake.pdf)
 
 ### Procedure:
 1/ download the PDF to your Mac or PC. 
